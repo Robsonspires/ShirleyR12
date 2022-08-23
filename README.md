@@ -1,7 +1,6 @@
 ### Olá!! 👋
 
 
-> - 🔭 I’m currently working on Grupo SBF
 > - 📫 How to reach me: https://bio.site/shirleyrrios
  ##
  <div>
